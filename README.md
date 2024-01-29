@@ -1,1 +1,1 @@
-# KHKT-c-a-K-t
+# KHKT
